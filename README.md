@@ -1,1 +1,0 @@
-# ARJSStudioTestoq3hmc
